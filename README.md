@@ -13,8 +13,6 @@
 
 - 📫 How to reach me **garlapatisravani99@gmail.com**
 
-- ⚡ Fun fact **i create youtube videos**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
